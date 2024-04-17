@@ -1,1 +1,0 @@
-# Start-up-of-the-year-testing
